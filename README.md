@@ -1,2 +1,0 @@
-# personalwebsiteportofolio
-# personalwebsite
